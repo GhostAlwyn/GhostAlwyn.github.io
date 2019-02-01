@@ -1,1 +1,1 @@
-# Ghost_Algwy.github.io
+# GhostAlwyn.github.io
